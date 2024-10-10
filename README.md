@@ -2,7 +2,7 @@
 
 📞 +91 9441351909  
 ✉️ [manikantakumargolla4@gmail.com](mailto:manikantakumargolla4@gmail.com)  
-🔗 [LinkedIn]https://www.linkedin.com/in/manikanta-kumar-golla-0a7a1a251/
+🔗 www.linkedin.com/in/manikanta-kumar-golla-0a7a1a251/
 
 ---
 
