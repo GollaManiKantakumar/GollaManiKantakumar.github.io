@@ -1,7 +1,6 @@
-# Golla Manikanta Kumar  
-📞 **+91 9441351909**  
+# Golla Manikanta Kumar   
 📧 [manikantakumargolla4@gmail.com](mailto:manikantakumargolla4@gmail.com)  
-[![LinkedIn](https://img.shields.io/badge/LinkedIn-Connect-blue)](https://www.linkedin.com/in/manikanta-kumar-golla-0a7a1a251/)
+[![LinkedIn](https://www.linkedin.com/in/manikanta-kumar-golla-0a7a1a251/)
 
 ---
 
